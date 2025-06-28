@@ -22,4 +22,4 @@ Instructor: Asst. Prof. Salih SARP
 
 Mehdi KURTCEBE
 
-Soner YALÇIN
+Soner GÜNEŞ
